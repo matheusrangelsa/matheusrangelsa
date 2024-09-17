@@ -1,4 +1,4 @@
-# Fala aí! Sou Matheus Rangel! Seja bem vindo ao meu perfil 🤘
+# Fala aí! Seja bem vindo ao meu perfil 🤘
 
 ### 🙋🏽‍♂️ Sobre mim
 >Sou carioca, 27 anos, apaixonado por tecnologias e acredito no potencial delas para simplificar nossas rotinas e melhorar a qualidade de vida. Gosto de ler livros técnicos, treinar, desenhar e montar playlists no spotify que combinam com cada momento para ouvi-las até enjoar. Costumo ser muito curioso e também sou autodidata, então isso me ajuda buscar formas diferentes de lidar com problemas ou desafios que ainda não domino.
